@@ -1,3 +1,4 @@
+## Directions:
 1. In a medium-sized bowl, add the flour and salt. Mix with fork until combined.
 
 2. Add in cubed butter and break up into flour with a fork. Mixture will still have lumps about the size of small peas.
